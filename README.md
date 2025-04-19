@@ -38,7 +38,7 @@ This project dives deep into the top 5000 TV shows listed on IMDb. The original 
 Hi! I’m Kartik, a data analyst with a love for storytelling and visual magic.  
 Let’s connect:
 - 📸 [Instagram: @i.m.kartik__](https://instagram.com/i.m.kartik__)
-- 👻 [Snapchat: im.kartik89   ](
+- 👻 [Snapchat: im.kartik89   ](https://www.snapchat.com/add/im.kartik89?share_id=Q2L23chelSs&locale=en-GB)
 
 ---
 
